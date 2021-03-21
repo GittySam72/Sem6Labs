@@ -9,4 +9,3 @@ feel free to reuse
 - 📫 How to reach me [LinkedIn](https://www.linkedin.com/in/shaikh-sameer-4884b7188/)
 - You can also reach me here [Twitter](https://twitter.com/shaikhsamir72), [Instagram](https://www.instagram.com/shaikhsamir72/), [Youtube](www.youtube.com/channel/UCNvW-iJtg3kA8l4jG5YclOQ
 )
-- ![youtube](https://icons8.com/icon/szxM3fi4e37N/play-button")
